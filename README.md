@@ -1,2 +1,0 @@
-# MakingSense Academy
- 
